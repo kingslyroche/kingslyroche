@@ -7,7 +7,7 @@
 
 - 🔭 I am currently working as ETL Developer!
 - 🌱 I am currently learning everything .
-- 🥅 2020 Goals: ....
+- 🥅 2021 Goals: ....
 - and I love 🐶
 
 
